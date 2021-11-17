@@ -1,2 +1,6 @@
 # Identifying and Detecting Early Signs of Banana Plant Disease Using Image Processing
-Repository of Team B
+**Members**
+- John Patrick M. Gasang 
+- Lorenzo R. Macaso 
+- Maria Pamela P. Tagayon 
+
