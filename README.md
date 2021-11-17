@@ -11,7 +11,7 @@ https://docs.google.com/document/d/1W8d9gjOkyJKynvhRXFPthkC_Kczfyt_4O6lr_OKWNR4/
 
 **Chapter 2**
 
-https://docs.google.com/document/d/1QsUXagj5doQNmjbHU2W2s9g-RNdTsJpJVgS21C_yz4Y/edit
+https://docs.google.com/document/d/1DBQ7QNuKeWv7qIEaB817zWgcJ24qxygiSiLMjpc3X7k/edit
 
 **Chapter 3**
 
