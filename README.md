@@ -18,3 +18,6 @@ https://docs.google.com/document/d/1DBQ7QNuKeWv7qIEaB817zWgcJ24qxygiSiLMjpc3X7k/
 https://docs.google.com/document/d/1hy-7C5utCqC6rcsbtpW7he6bBnE10wZBViMXrM0uNso/edit
 
 **Chapter 4**
+
+https://docs.google.com/document/d/1b8thvrRhgB4bbqKGIOvl_h9AMqF8lel54PLzPudh6kM/edit
+
