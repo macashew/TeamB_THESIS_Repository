@@ -1,4 +1,4 @@
-# Identifying and Detecting Early Signs of Banana Plant Disease Using Image Processing
+# Identifying and Detecting Early Signs of Banana Plant Disease Using Image Processing System
 **Members**
 - John Patrick M. Gasang 
 - Lorenzo R. Macaso 
