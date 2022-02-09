@@ -31,4 +31,4 @@ https://docs.google.com/document/d/1rR8wnGejdadkipMabY3In6cq6kEn0BL9pdd8ua8nwQ0/
 
 **Chapter 7**
 
-https://docs.google.com/document/d/16Wc_DT78MQ1Db7MnyEZmkeE_tqWbxBKAJuAWZDvIeuU/edit
+https://docs.google.com/document/d/16Wc_DT78MQ1Db7MnyEZmkeE_tqWbxBKAJuAWZDvIeuU/edit [CHAPTER VII VERSION 1]
