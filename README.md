@@ -7,19 +7,19 @@
 
 **Chapter 1**
 
-https://docs.google.com/document/d/1SDboHhJs4NBNTdW48AEizBqYMN7t_P_UVONm8sGmqGE/edit [CHAPTER I VERSION 1]
+https://docs.google.com/document/d/1o4L-id0OZfPPfguBQ6OFkKm_4kQzfJ5s-BL0Q5RvE2Y/edit [CHAPTER I VERSION 1]
 
 **Chapter 2**
 
-https://docs.google.com/document/d/1l_mvHm2OSvyz7XCNWJfD3m3yIsxeZdl9Mxby_mMQbMQ/edit [CHAPTER II VERSION 1]
+https://docs.google.com/document/d/1vGPHMjknjYyXwxYJnsGagmL_GpKXD1FrDnPt1g7XubU/edit [CHAPTER II VERSION 1]
 
 **Chapter 3**
 
-https://docs.google.com/document/d/1SEb7RfN5WZylwfT8qakQDHVtinYPKcOh7TyMb4Lgrek/edit [CHAPTER III VERSION 1]
+https://docs.google.com/document/d/16O74tUVbkRr-ia4lnZ9OvEpy1ldIWWW68UfxV8x39Y4/edit [CHAPTER III VERSION 1]
 
 **Chapter 4**
 
-https://docs.google.com/document/d/1piHsP9r9bTQ-XmVthYPk1uaXnk2mKxDcpZBiZDC0BrU/edit [CHAPTER IV VERSION 1]
+https://docs.google.com/document/d/1fJkTz4PdThA42G4sB2Hvdux1-TyTVe9PPz_B-eK178k/edit [CHAPTER IV VERSION 1]
 
 **Chapter 5**
 
