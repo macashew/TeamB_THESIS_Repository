@@ -21,3 +21,14 @@ https://docs.google.com/document/d/1SEb7RfN5WZylwfT8qakQDHVtinYPKcOh7TyMb4Lgrek/
 
 https://docs.google.com/document/d/1piHsP9r9bTQ-XmVthYPk1uaXnk2mKxDcpZBiZDC0BrU/edit [CHAPTER IV VERSION 1]
 
+**Chapter 5**
+
+https://docs.google.com/document/d/1ENC3PxI_ckaXx1dc7GY-3gMwVo6z_BiObQldMsxYfdE/edit [CHAPTER V VERSION 1]
+
+**Chapter 6**
+
+https://docs.google.com/document/d/1rR8wnGejdadkipMabY3In6cq6kEn0BL9pdd8ua8nwQ0/edit [CHAPTER VI VERSION 1]
+
+**Chapter 7**
+
+https://docs.google.com/document/d/16Wc_DT78MQ1Db7MnyEZmkeE_tqWbxBKAJuAWZDvIeuU/edit
